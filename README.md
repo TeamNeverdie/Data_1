@@ -1,4 +1,1 @@
-# Data_1
-Au !
-James !
-dis
+หนุ่ย
